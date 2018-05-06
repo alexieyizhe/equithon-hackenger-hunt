@@ -37,15 +37,13 @@ This clue, ignoring all the unnecessary reversal of letters, had you converting 
 
 
 ## **Winner!**  
-Solving the last clue took you to a page asking you to find the organizer who created this (me!) and tell me all the clues to win.
- 
- 
- 
-
-To everyone who tried the hackenger hunt: hope you had a great time! the hunt was awesome to make
+Solving the last clue took you to a page asking you to find the organizer who created this (me!) and tell me all the clues to win.  
+  
+  
+  #### **To everyone who tried the hackenger hunt: hope you had a great time! I had a great time making the puzzles :)**
 (to the winners of the hackenger hunt: why did u take away my prizes smh)  
 
 
-Hope everyone had a great time at Equithon 2018!
+# *Hope everyone had a great time at Equithon 2018!*
 
 *Created May 2018.*
